@@ -1,46 +1,36 @@
-Používám hrozby, nevobměkčí mě prosby,
-sfetuju tě a zmrdám lidi říkaj mi Bill Cosby,
-máme plný nozdry, zobem fet jak drozdi,
-vidíš ty na hlaváku, v psychóze bušim pěstí do zdi
-Neser mě ty píčo dotazem jestli malej hamal,
-vylil sem ze lžíce žrádlo a nahřál si na ní Tramal
-Nejsem žádnej čamal, už dávno nehulim trávu,
-postoupil jsem dál, kokainem nahradil kávu
-Moje čelist jede jak válec psacího stroje chin chin,
-jsem ready jít do boje, cejtim se jak Kingpin
-Spim jenom ve stoje, nechávám se za fet vojet,
-moje ruce vypadaj jak kdybych spadnul přímo do vosího roje
-Cejtim se jak Hulk a fetuju jak Hulk Hogan,
-zbíječka místo srdce a místo očí Halogen,
-zpomalí mě Hypnogen, sežeru celý plato,
-v křeči si vylámu zuby, začnu rapovat jak KatoAaaaaaaaaaahhh
-Mam tlak dvě stě na sto, v sobě matro za sto,
-tisíc, nespal sem měsíc, možná i víc,
-co na mě civíš, čemu se kurva divíš,
-naval speedy for Haades, speedy Gonzales
-a rybaa, sem to dope to dope,
-lepší chcípnout na zlatou než nudou, you know
-Mám překoplou flow, pře-pře-překoplou show,
-překoplou artikulaci, přehnal jsem to se stimulací!
-Přijdu si jakoby v simulaci, vidím divný věci
-a cejtim jak mi rostou vlasy, asi se mi srdce
-každou chvíli kurva rozskočí, mám to v píči, chcípnu v kurva rozkoší
-Mám v sobě boží zboží, smaží se mi fajn,
-drogy jsou dobré, dám ještě pár lajn
-a napíšu pár lajn, o tom jak to dělám a bam bam baaamDeSád je feťáááááááák!!
-Bůhví kolik je drog, co se mě můžou týkat,
-se můžeš dopočítat já v tom umim kurva lítat
-Nic kurva neznamená že začíná svítat,
-v mým mozku je tma, tak proč tam nezavítat
-Herák píchat, koku žvýkat, koukej ten shit míchat
-Když si doneseš nějaký coco, nemůžu tě neuvítat
-Než budeme píchat, piva, lajny budou lítat
-s tím musíš počítat, ne že mi to pak budeš vyčítat
-DeSade bere narkotika, nemusí snídat,
-to je pak jiná erotika, protože se nemusí hlídat,
-neklepe se jak osika, protože tě pak nemusí vídat,
-to je to, na co myslim než jdu tvojí prdel nadívat
-Nemůžu se vynadívat na rýsování jídla,
-narýsuj mi z toho piču a budu kokain zřívat
-Budu u toho bdělý a nebudu zívat
-o tom že jsme v koksu nechali už mega se budu vysmívat
+Chci se sjet jak beerdou,
+čekám až s tim přijdou,
+sjedu se křídou
+a odletim pryč první třídou.A až mi to dojde půjdu si to koupit znova,
+poletuju po nocích a houkám jako sova,
+vůbec mi to neva, jsem žhavej jak výstřel,
+tak už mi prozraď, kdo je tvůj dealer,
+dostane výser jestli to bude oblož,
+nejedu nikam, chci to dovýzt až pod nos,
+stříbrnej podnos a na něm čáry,
+jednu tam pošlu a zapnu Poker stary.Drogy on my mind, drogy all the time,
+Drogy on my mind, drogy all the, drogy all the,
+drogy on my mind, drogy all the time,
+drogy on my mind, drogy all the time.
+fotky
+HaadesPíčo to to lítá, ještě jsem nespal a venku už svítá.
+Zase? Vždyť už dneska svítalo třikrát,
+koukej to už dohrát, zmrde, jdi spát (jdi spát).
+Nedá se to ustát, jsem příliš moc,
+chce to nějaký sedativum na dobrou noc,
+koupim si skéro a vyhulim dvougram,
+lepší by byl asi gram, do hlavy ďoura,
+jde na mě depka, co si na ní mám dát,
+nejlepší nápad je MDMA, hurá,
+zase mám všechny rád,
+rozplývám se, tančím, nemůžu se přestat smát.Život je krásný, dokud to teda maká,
+pak přijde dojezd a já zas budu plakat,
+ale to je fuk, seru na to co bude,
+žiju teď a tady, chápeš to, zmrde?Drogy on my mind, drogy all the time,
+Drogy on my mind, drogy all the time.Perník, tráva, Mko a houby,
+všechno si to dám, mrdám na vaše soudy,
+ketamin, LSD, toulen a kokain,
+sfetovanej zmrd, mrdám jak na mě koukaj.Perník, tráva, Mko a houby,
+všechno si to dám, mrdám na vaše soudy,
+ketamin, LSD, toulen a kokain,
+sfetovanej zmrd, mrdám jak na mě koukaj.Bitch.
