@@ -12,7 +12,6 @@ jednu tam pošlu a zapnu Poker stary.Drogy on my mind, drogy all the time,
 Drogy on my mind, drogy all the, drogy all the,
 drogy on my mind, drogy all the time,
 drogy on my mind, drogy all the time.
-fotky
 HaadesPíčo to to lítá, ještě jsem nespal a venku už svítá.
 Zase? Vždyť už dneska svítalo třikrát,
 koukej to už dohrát, zmrde, jdi spát (jdi spát).
