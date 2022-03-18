@@ -1,45 +1,28 @@
-Nebude líp, ne, nebude líp mně,
-nebaví mě žít, mě nebaví žít,
-mně nebude líp, ne, takhle to ve mně skřípe,
-nebude líp, něco se narodí, to chcípne!
-Nebaví mě žít mě, chtěl bych žít bez starostí,
-dítě, dítě co nikdy nevidí vztek!
-Chtěl bych bejt normální týpek,
-co žije bez výčitek, co má rád svou práci,
-nelije jak dobytek!
-Chtěl bych bejt normální člověk,
-co nemá problém s hlavou,
-chtěl bych umět rozpoznat možnost,
-vsadit na tu pravou!
-Chtěl bych plnit svý povinnosti, plnit svý sliby,
-chtěl bych bejt naivní panic, co nosí slipy,
-nemít stovky fanynek, nežít si svůj sen,
-nemít stovky fanoušků a moct si vylízt ven!
-Chtěl bych normální život,
-kde priority nejsou kundy a pivo, koks a kasino!
-Chtěl bych myslet pozitivně, ne vo hovně,
-depresivně nebo jinak divně, chtěl bych žít aktivně!
-Ne se furt válet vylitej jak svině v kocovině,
-v přetejkající vaně topit, sousedy srát na ně!Bohužel se to nestane, nestane, nestane, nestane, nestane!
-Jsem uvězněn v hlavě debila
-ty zasrane, zasrane, zasrane, zasrane, zasranej!
-Ty zasrane zasranej!A když už myslim, že líp je zase to ve mně skřípe,
-normální to už asi nikdy nebude!
-Naděje vždycky chcípne, není to lepší než dřív, ne
-a lepší to už asi nikdy nebude!
-Chtěl bych normální spaní, ne noční můry,
-o krvácení a sraní, podvádění a lhaní,
-o nezaplacených daních, o nevolnostech ranních,
-o hlavě v dlani a moři, depresi na ní,
-otrávenej životem, přivotrávenej chlastem,
-snažim se přežít, vyhejbám se propastem!
-Panáky mi noste, uchlastat se je můj úkol,
-všichni pijou na svý zdraví, Já piju na jeho úkor!
-Bohužel normální nebudu, jsem DeSadem všude kde jdu,
-z hulení jsem agresivní, seru ti na tu pohodu,
-strč jednu ruku do zásuvky, druhou pod vodu,
-bohužel normální nikdy nebudu!
-Jsem DeSade, maj mě za pobudu,
-na světě ještě chvilku pobudu pak půjdu vod sudu!
-Předtím udělám vostudu, ukážu všem, že můj život nebyl vo studu,
-normální nebudu!
+Kokain my nebereme kokain..Ne a ne a ne a ne a neneberem jako Nurminen.
+Nurminen je finský gólman-nebere ne a ne a ne a ne.A já to mám v píči, ať si dělá co chce.
+Wojtyla taky nebral a jak dopad?
+Biotech is Wojtyla hodil, hodil, hodil kurva kómat
+ale za to Armado Diego Maradona ví jak na to, vždyť seňor Pablo Escobar ví co fotbalista smí, co
+fotbalista smí.
+fotky
+Ale lidé jsou zvláštní-Se diví, co se to děje? Sportovec bere?
+Obtůlat larvu, udělej to jako Olda
+Oldřich Nový, romanticko nosně, ortodoxní
+Ale lidé jsou zvláštní - se diví - co se to děje?
+Herec bere?8x
+Kokain my nebereme kokain..Mám takové trápení, co mi máma udělala.
+Byl jsem na hřišti, když mi z okna zavolala,
+že už mám jít, že už je navaříno, mám se stavit
+do večerky a koupit ještě víno. Tak jsem se rozloučil s kamarádama na hřišti, zbalil jsem si věci a pry neděli příští.Kámoši jsou v pohodě- chodim s nima do školky,
+zkusili jsme všechno a taky balit holky.
+Tak jsem spěchal domů a těšil se na jídlo, máma řekla
+vysmrkej se a použij taky mýdlo.
+Co mě doma čekalo o tom jsem němel šajnu-měl jsem doma k večeři
+kokainovou lajnu.8x
+Kokain my nebereme kokain....
+Já jsem jiný drogy neberu, s chlastem se ale kurva za to neseru.
+Když přijde na to, stojí to za to, vypiju se jako prase, pak vypádá to.Potřebuju sem tam vypustit ventyl, potřebuju do sebe jo natlakovat methyl.
+Tak to kurva stop kurva kurva stop, smrtelný pot mi nepříde vhod...
+Poslední dobou ale neudržím krok, už bych se měl držet asi asi jenom drog.8x
+Kokain my nebereme kokain...
+(kokain)
