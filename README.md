@@ -1,28 +1,23 @@
-Kokain my nebereme kokain..Ne a ne a ne a ne a neneberem jako Nurminen.
-Nurminen je finský gólman-nebere ne a ne a ne a ne.A já to mám v píči, ať si dělá co chce.
-Wojtyla taky nebral a jak dopad?
-Biotech is Wojtyla hodil, hodil, hodil kurva kómat
-ale za to Armado Diego Maradona ví jak na to, vždyť seňor Pablo Escobar ví co fotbalista smí, co
-fotbalista smí.
-fotky
-Ale lidé jsou zvláštní-Se diví, co se to děje? Sportovec bere?
-Obtůlat larvu, udělej to jako Olda
-Oldřich Nový, romanticko nosně, ortodoxní
-Ale lidé jsou zvláštní - se diví - co se to děje?
-Herec bere?8x
-Kokain my nebereme kokain..Mám takové trápení, co mi máma udělala.
-Byl jsem na hřišti, když mi z okna zavolala,
-že už mám jít, že už je navaříno, mám se stavit
-do večerky a koupit ještě víno. Tak jsem se rozloučil s kamarádama na hřišti, zbalil jsem si věci a pry neděli příští.Kámoši jsou v pohodě- chodim s nima do školky,
-zkusili jsme všechno a taky balit holky.
-Tak jsem spěchal domů a těšil se na jídlo, máma řekla
-vysmrkej se a použij taky mýdlo.
-Co mě doma čekalo o tom jsem němel šajnu-měl jsem doma k večeři
-kokainovou lajnu.8x
-Kokain my nebereme kokain....
-Já jsem jiný drogy neberu, s chlastem se ale kurva za to neseru.
-Když přijde na to, stojí to za to, vypiju se jako prase, pak vypádá to.Potřebuju sem tam vypustit ventyl, potřebuju do sebe jo natlakovat methyl.
-Tak to kurva stop kurva kurva stop, smrtelný pot mi nepříde vhod...
-Poslední dobou ale neudržím krok, už bych se měl držet asi asi jenom drog.8x
-Kokain my nebereme kokain...
-(kokain)
+Jak je to možné, že se lampa rožne?
+To je jenom píčo dobře, co bys hulil v zimě?
+No to je fakt v těch zimních měsícách,
+nemusím se obávat, že nebude co hulit v létě.
+No vidíš jak je to praktické!
+Ale ne levně! Ale i přes to se to vyplatí,
+budu mít co hulit a taky ostatní. Šak pukneš též...
+To si piš! Takna též, to si piš, že zahulím to tvoje
+svinstvo. Že se nezhulím, to se nebojím!
+Vím, že ta tvá ozářená flóra není jen tak ledajaké
+ledajaké kóma.
+To se teda, to se teda teda nepleteš, je to sice
+jižní slunce, ale není to totéž. Toto je rychlejší,
+čistší a zdravější-pro naši potřebu je to
+Best of ANAU!
+Pukneš též-to si piš! Takna též-to si piš!
+Kouba...Mukna...ICE-B...
+Šenda ne-to se ví, Keňa též-to si piš!
+Pampr též...
+Už to nejsou jižní svahy, je to výplod elektrárny.
+Mě je to jasné, že se lampa zhasne.
+Rožne-zhasne-vypadá to krásně. Vypadá to
+zcela evidentně dobře-nasadíš-daří se-sklidí se
