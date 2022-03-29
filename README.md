@@ -1,23 +1,32 @@
-Jak je to možné, že se lampa rožne?
-To je jenom píčo dobře, co bys hulil v zimě?
-No to je fakt v těch zimních měsícách,
-nemusím se obávat, že nebude co hulit v létě.
-No vidíš jak je to praktické!
-Ale ne levně! Ale i přes to se to vyplatí,
-budu mít co hulit a taky ostatní. Šak pukneš též...
-To si piš! Takna též, to si piš, že zahulím to tvoje
-svinstvo. Že se nezhulím, to se nebojím!
-Vím, že ta tvá ozářená flóra není jen tak ledajaké
-ledajaké kóma.
-To se teda, to se teda teda nepleteš, je to sice
-jižní slunce, ale není to totéž. Toto je rychlejší,
-čistší a zdravější-pro naši potřebu je to
-Best of ANAU!
-Pukneš též-to si piš! Takna též-to si piš!
-Kouba...Mukna...ICE-B...
-Šenda ne-to se ví, Keňa též-to si piš!
-Pampr též...
-Už to nejsou jižní svahy, je to výplod elektrárny.
-Mě je to jasné, že se lampa zhasne.
-Rožne-zhasne-vypadá to krásně. Vypadá to
-zcela evidentně dobře-nasadíš-daří se-sklidí se
+Pustim ti homo porno jo to bude skvělej prolog,
+A kdyz posunem se o rok bude z tebe ornitolog,
+Ja jsem prorok ty kurva jedu horor leju burbon,
+A svůj rapovej motor zase přepinam na turbo,
+Rozkopu ti turbance,.... Otec bura tenhle zkurvenej track je myho mozku inventura,
+Za moji karieru už byla nápadu fůra,
+Ale timhle (cikadura?) za to jakej ty jsi čurák,
+Teď ti bodam do kasy ja vim zasrana stvůra,
+Skopal bych ti kůži z těla jak kdyby to byla kůra,
+Za to ze jsi byl dick zažije tvá huba úraz,
+Za tohle (gerilshit?) je jen kecy drumadůra,
+Moje huba je úkaz ja jsem Frady fakin cruga,
+A tvý zasraný dredy roztočim jak centrifuga,
+Ustřeli to tvoji palici az (zazvonici bruga?)
+Spadneš rozmrdás se na kaši co dám do suga,Tak si dej prda dám ti ketamin do bonga,
+Tvoji bílou prdel zmrde odpálim do konga,
+Nakopat jak (ongpag?) zabije tadle bomba,
+Nebo budeš zombie na ostrově SpinalongaVytvářite braky vyserte se na to fuck it,
+rappery co jsou na mraky sestřeluju do flaky,
+moje tracky jsou tak homo že to buznám staví ptáky,
+moje tracky jsou tak sick ze z toho lidi chytaj raky,
+A ja vidim taky fuckin buzeranty mektat,
+do přiteplenejch beatů nesmyslný slova šeptat,
+dnešni chlapy teplaj, barber shop a flatwhite,
+Sick jak reptile už tě moje sliny leptaj,
+neplivu bars ale sars je to divočina,
+decimuju vás fackin masakr jak Iwo Jima,
+buzerant a rapper tak to jsou pro mě synonima,
+ne, nedam si pivo s nima fakt to neni psychosamaticky,
+měl jsem to tak dycky sere mě to lidsky na nicky asi jsem alergicky,
+dělam to netypicky démonicky ten svůj sickshit,
+a vy jste mniši ktery musel ďabel zničit.
