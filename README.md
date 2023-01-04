@@ -1,9 +1,3 @@
-Ty zkurvená nulo
-Podívej se na sebe
-Dyť už si úplná troska ty vole
-Heh, všichni se ti smějou
-I ty tvý kámoši ty vole
-Rodina tě zavrhla
 Heh, dyť ty si úplnej nebožák
 Všichni tě nenáviděj, smějou se ti, ty si úplně mrdka, úplněk hovnu, chápeš? Úplně k hovnu!UŽ DOST!
 Bloudim... Bloudim...
