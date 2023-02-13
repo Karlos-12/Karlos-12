@@ -1,56 +1,61 @@
-Už přišel ten den, po kterým další nenastane
-Jedině dneska mi život bude říkat: "Pane"
-Vemu ho do svejch rukou a takhle ho zahodím
-Už mě přestává bavit jak se smrtí pořád závodím
-Stejně nevyhraju smrt je jediná jistota
-Furt bych na ní myslel až do konce svýho života
-Chci ji zkusit teď, tak abych zheb už je načase
-Zabít se, revolver mám pevně za pasem
-Omlouvám se všem kterejm záleželo na mně
-Omlouvám se fotrovi, omlouvám se mámě
-Dali jste mi život o kterej jsem nikdy nestál
-Kdybych žití neznal, tak bych se smrti nebál
-Zažil jsem hodně a nic mě nebavilo
-Není tu nic, co by můj šedej život vybarvilo
-Mizérie deprese třese se ruka
-Když dávám zbraň k hlavě vychází kulka!
-Život jsem si nevybral, smrt si můžu zvolit
-Cesta byla dlouhá, je na čase to skončit
-Život jsem nechtěl, smrt je vysvobození
-Navěky se vodebírám, do zapomnění
-Život jsem si nevybral, smrt si můžu zvolit
-Cesta byla dlouhá, je na čase to skončit
-Život jsem nechtěl, smrt je vysvobození
-Navěky se vodebírám, do zapomnění
-Už nastal čas, čas na věky odejít
-Už nastal čas, čas na věky odejít!
-(Je čas to skončit!)
-Nihilista co se snaží stébla chytat
-Ale nenacházím naději, je na čase se chystat
-Na onen svět, kde budu mít pokoj hned
-Lidi pudou za mnou, až se tenhle track
-Dostane na internet
-Vědomí je vedlejší produkt evoluce
-Rozhodnutí se zabít je vědomí revoluce
-Revolver v ruce, rezoluce, smrti v lebce
-Jít dál se mi nechce, dá se to skončit lehce
-Naschledanou všem těm, co tady zůstanou
-Taky na vás dojde jednou a sejdete se semnou
-Vůně nicoty vzduchoprázdno v zániku
-Ani vlastně nevím kde, zjistím to za chvilku
-Jsme jenom buňky so se shlukli dohromady
-Žádná duše, nic, zázrak neudělal jsem tady
-Není žádná naděje, je to fakt smutný
-Dál už se nic neděje, zemřít je nutný
-Život jsem si nevybral, smrt si můžu zvolit
-Cesta byla dlouhá, je na čase to skončit
-Život jsem nechtěl, smrt je vysvobození
-Navěky se vodebírám, do zapomnění
-Život jsem si nevybral, smrt si můžu zvolit
-Cesta byla dlouhá, je na čase to skončit
-Život jsem nechtěl, smrt je vysvobození
-Navěky se vodebírám, do zapomnění
-Už nastal čas, čas na věky odejít
-Už nastal čas, čas na věky odejít!
+Chtěl jsem ovládnout tenhle svět,
+chtěl jsem bejt vždycky napřed,
+na píču od A do Z,
+už není co mluvit a kam jet,
+je mi pouhopouhých 30 let,
+ale cejtim se jako starej kmet,
+zbyl jsem jenom já a muj fet,
+ještě 2 songy a budu DEAD.Zatímco ty zažíváš štěstí, protože jdeš s rodinou na houby,
+já se mlátim do hlavy pěstí, mozek chci si provrtat šrouby,
+a vim co špatnýho to věstí, když slyšim vrzat svý klouby,
+stále žiju naneštěstí, všude vidim přiblblý trouby,
+ale ti blbečci jsou happy, jak to kurva dělaj,
+chci mít taky handikapy, mám strach chodit do kostela,
+neumim slepovat střepy v útrobách rozbitýho těla,
+umim jen rapy a vymetat ty čepy a chlastat do osaměla,
+cejtim se jak šílenec, jak hovado, jak maniak,
+na planetě Zemi vetřelec, celý to mělo bejt asi trochu jinak,
+jsem věčnej pekla stoupenec, drakéry kim coniak,
+čurák vydupán z afrodisiak, jsem Desade demoniak,
+satan je muj felák, za pták na hák mě věší xxxxx,
+další hlák mě celýho zfetoval, matka říká, že jsem čůrák,
+že nenávidím tuzemák, zlitej Jackem řvu na celej panelák,
+špatnej žák, plešatej jak kožak, šupák, kuřák, ubožák...(Refrén)
+Chtěl jsem ovládnout tenhle svět (už na to mrdám),
+chtěl jsem bejt vždycky napřed (už na to mrdám),
+na píču od A do Z (už na to mrdám),
+už není co mluvit a kam jet (už na to mrdám),
+je mi pouho pouhých 30 let (a už na to mrdám),
+ale cejtim se jako starej kmet (už na to mrdám),
+zbyl jsem jenom já a muj fet (už na to mrdám),
+ještě 2 songy a budu DEAD (už na to mrdám).
+fotky
+Chtěl jsem bejt bohatej jak Steve Jobs (už na to mrdám),
+ve 30 letech nemám ani stálej job (už na to mrdám),
+říkám že kurva nemám, ale kurva mám prop (na kterej mrdám),
+rapuju 100 let a flow furt nemám top (na tebe mrdám),
+chtěl jsem k světu vypadat a víc se rozpadat nemusel by vypadat kdyby se chtělo,
+možná líp by bylo, ale bylo jak bylo,
+a možná to tak dobře celý jenom znělo,
+chtěl jsem světu přínést dobro, ale přines sem hovno, zlo mě pohltilo, protože se mrdalo fetovalo a pilo,
+protože máš debilní jméno Jarmilo,
+důvodů je málo a důvodů je plno,
+proč xxxx v Praze udělá průser jak Brno,
+chtěl jsem ale vlez sem kam sem neměl,
+chtěl jsem mít jasno, pak jsem ztemněl,
+chtěl jsem dělat vrcholovej sport (a už na to mrdám),
+protože u telky žeru pořád dort (pak se nezvedám),
+chtěl jsem bejt namakanej pornoherec (a už na to mrdám),
+jsem tlustej a za prachy mě píchal hřebec (už ani péro nemám),
+chtěl jsem bejt normální kluk (ale už na to prcám),
+na cokoli co sem kdy chtěl protože jsem Desade!(Refrén)
+Chtěl jsem ovládnout tenhle svět (už na to mrdám),
+chtěl jsem bejt vždycky napřed (už na to mrdám),
+na píču od A do Z (už na to mrdám),
+už není co mluvit a kam jet (už na to mrdám),
+je mi pouho pouhých 30 let (a už na to mrdám),
+ale cejtim se jako starej kmet (už na to mrdám),
+zbyl jsem jenom já a muj fet (už na to mrdám),
+ještě 2 songy a budu DEAD (už na to mrdám)!!!
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
