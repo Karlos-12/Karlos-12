@@ -1,61 +1,46 @@
-Chtěl jsem ovládnout tenhle svět,
-chtěl jsem bejt vždycky napřed,
-na píču od A do Z,
-už není co mluvit a kam jet,
-je mi pouhopouhých 30 let,
-ale cejtim se jako starej kmet,
-zbyl jsem jenom já a muj fet,
-ještě 2 songy a budu DEAD.Zatímco ty zažíváš štěstí, protože jdeš s rodinou na houby,
-já se mlátim do hlavy pěstí, mozek chci si provrtat šrouby,
-a vim co špatnýho to věstí, když slyšim vrzat svý klouby,
-stále žiju naneštěstí, všude vidim přiblblý trouby,
-ale ti blbečci jsou happy, jak to kurva dělaj,
-chci mít taky handikapy, mám strach chodit do kostela,
-neumim slepovat střepy v útrobách rozbitýho těla,
-umim jen rapy a vymetat ty čepy a chlastat do osaměla,
-cejtim se jak šílenec, jak hovado, jak maniak,
-na planetě Zemi vetřelec, celý to mělo bejt asi trochu jinak,
-jsem věčnej pekla stoupenec, drakéry kim coniak,
-čurák vydupán z afrodisiak, jsem Desade demoniak,
-satan je muj felák, za pták na hák mě věší xxxxx,
-další hlák mě celýho zfetoval, matka říká, že jsem čůrák,
-že nenávidím tuzemák, zlitej Jackem řvu na celej panelák,
-špatnej žák, plešatej jak kožak, šupák, kuřák, ubožák...(Refrén)
-Chtěl jsem ovládnout tenhle svět (už na to mrdám),
-chtěl jsem bejt vždycky napřed (už na to mrdám),
-na píču od A do Z (už na to mrdám),
-už není co mluvit a kam jet (už na to mrdám),
-je mi pouho pouhých 30 let (a už na to mrdám),
-ale cejtim se jako starej kmet (už na to mrdám),
-zbyl jsem jenom já a muj fet (už na to mrdám),
-ještě 2 songy a budu DEAD (už na to mrdám).
+"Hewe jak se máš??"
+Ty kundo mám se na píču!!
+Myslím že se voddělám, ještě než tenhle track napíšu.
+Promarněný dětství, moje psychika je v hajzlu.
+Místo reality radši lítám doma v tranzu.
+Mám agresivní záchvat, všechno kolem ničím.
+A většinou se proberu, až když je to v píči.
+Často radši mlčím a nic neřeknu do očí.
+A od šestnácti let trpím bipolární nemocí.
+Nezbylo mi nic, jenom píčo flaška vína.
+Chci odejít pryč, oprátka už se napíná.
+Místo toho abych chrápal, si jdu pro další flašku.
+Ráno když mám vstávat, tak s telefonem prasknu.
+Já se nechci bavit a nemám sílu smát se.
+Dal bych tomu pět minut a pak by došlo k hádce.
+Mám promile v krvi, všude vidím nepřátelé.
+Tak se radši seber a táhni do prdele.Ref.:
+Náhled do temnoty, to je náhled do mý duše.
+Žít nebo zemřít, všechno zní tak jednoduše.
+Žiletka na žíle, jenom čekám na tu chvíli.
+Krev ze mě vytejká, ale neblížím se k cíli.
+"Hewe pudeš na pivo??"
+Ty mrdko táhni do hoven!!
+Myslíš že fakt nevím, žes mi starou mrdal za rohem??
+Jedna rána, druhá rána, šlapu mu ksicht do země.
+Fellas už mě drží, vy buzeranti pusťte mě!!
+Jdu na vlastní party, jen si dojdu pro víno.
+Druhej den mě matka vole malém našla mrtvýho.
+Nenávidím svět a taky sere mě mý okolí.
+Přendanej, zchlastanej, bloudím ve svým pokoji.
+Prchá ze mě život, všechny plány a touhy.
+Čumím doma do zdi, takže dny jsou dlouhý.
+Hnusí se mi jídlo, už nemůžu ani polknout.
+Nekonečnej hlad a depky, jistím Tullamorkou.
+Přes den se to dá, ale co mám dělat přes noc??
+Ty stavy jsou fakt šílený, vymrdaná bezmoc.
+Žeru plata prášků, ty stavy už mě serou.
+Zase píšu dopis mámě na rozloučenou.
 fotky
-Chtěl jsem bejt bohatej jak Steve Jobs (už na to mrdám),
-ve 30 letech nemám ani stálej job (už na to mrdám),
-říkám že kurva nemám, ale kurva mám prop (na kterej mrdám),
-rapuju 100 let a flow furt nemám top (na tebe mrdám),
-chtěl jsem k světu vypadat a víc se rozpadat nemusel by vypadat kdyby se chtělo,
-možná líp by bylo, ale bylo jak bylo,
-a možná to tak dobře celý jenom znělo,
-chtěl jsem světu přínést dobro, ale přines sem hovno, zlo mě pohltilo, protože se mrdalo fetovalo a pilo,
-protože máš debilní jméno Jarmilo,
-důvodů je málo a důvodů je plno,
-proč xxxx v Praze udělá průser jak Brno,
-chtěl jsem ale vlez sem kam sem neměl,
-chtěl jsem mít jasno, pak jsem ztemněl,
-chtěl jsem dělat vrcholovej sport (a už na to mrdám),
-protože u telky žeru pořád dort (pak se nezvedám),
-chtěl jsem bejt namakanej pornoherec (a už na to mrdám),
-jsem tlustej a za prachy mě píchal hřebec (už ani péro nemám),
-chtěl jsem bejt normální kluk (ale už na to prcám),
-na cokoli co sem kdy chtěl protože jsem Desade!(Refrén)
-Chtěl jsem ovládnout tenhle svět (už na to mrdám),
-chtěl jsem bejt vždycky napřed (už na to mrdám),
-na píču od A do Z (už na to mrdám),
-už není co mluvit a kam jet (už na to mrdám),
-je mi pouho pouhých 30 let (a už na to mrdám),
-ale cejtim se jako starej kmet (už na to mrdám),
-zbyl jsem jenom já a muj fet (už na to mrdám),
-ještě 2 songy a budu DEAD (už na to mrdám)!!!
+Plnej zlostiRef.:
+Náhled do temnoty, to je náhled do mý duše.
+Žít nebo zemřít, všechno zní tak jednoduše.
+Žiletka na žíle, jenom čekám na tu chvíli.
+Krev ze mě vytejká, ale neblížím se k cíli.
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
