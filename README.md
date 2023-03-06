@@ -1,46 +1,45 @@
-"Hewe jak se máš??"
-Ty kundo mám se na píču!!
-Myslím že se voddělám, ještě než tenhle track napíšu.
-Promarněný dětství, moje psychika je v hajzlu.
-Místo reality radši lítám doma v tranzu.
-Mám agresivní záchvat, všechno kolem ničím.
-A většinou se proberu, až když je to v píči.
-Často radši mlčím a nic neřeknu do očí.
-A od šestnácti let trpím bipolární nemocí.
-Nezbylo mi nic, jenom píčo flaška vína.
-Chci odejít pryč, oprátka už se napíná.
-Místo toho abych chrápal, si jdu pro další flašku.
-Ráno když mám vstávat, tak s telefonem prasknu.
-Já se nechci bavit a nemám sílu smát se.
-Dal bych tomu pět minut a pak by došlo k hádce.
-Mám promile v krvi, všude vidím nepřátelé.
-Tak se radši seber a táhni do prdele.Ref.:
-Náhled do temnoty, to je náhled do mý duše.
-Žít nebo zemřít, všechno zní tak jednoduše.
-Žiletka na žíle, jenom čekám na tu chvíli.
-Krev ze mě vytejká, ale neblížím se k cíli.
-"Hewe pudeš na pivo??"
-Ty mrdko táhni do hoven!!
-Myslíš že fakt nevím, žes mi starou mrdal za rohem??
-Jedna rána, druhá rána, šlapu mu ksicht do země.
-Fellas už mě drží, vy buzeranti pusťte mě!!
-Jdu na vlastní party, jen si dojdu pro víno.
-Druhej den mě matka vole malém našla mrtvýho.
-Nenávidím svět a taky sere mě mý okolí.
-Přendanej, zchlastanej, bloudím ve svým pokoji.
-Prchá ze mě život, všechny plány a touhy.
-Čumím doma do zdi, takže dny jsou dlouhý.
-Hnusí se mi jídlo, už nemůžu ani polknout.
-Nekonečnej hlad a depky, jistím Tullamorkou.
-Přes den se to dá, ale co mám dělat přes noc??
-Ty stavy jsou fakt šílený, vymrdaná bezmoc.
-Žeru plata prášků, ty stavy už mě serou.
-Zase píšu dopis mámě na rozloučenou.
-fotky
-Plnej zlostiRef.:
-Náhled do temnoty, to je náhled do mý duše.
-Žít nebo zemřít, všechno zní tak jednoduše.
-Žiletka na žíle, jenom čekám na tu chvíli.
-Krev ze mě vytejká, ale neblížím se k cíli.
+Není to jako dřív debil byl ve mě,
+Nešlo to dělat líp nechtělo se mě,
+Ale kdyby jste neměli přirozenej posun,
+Nemohli by jste řict tak už to někam posuň,
+Co tak najednou? Co se děje? Jdu né s jednou,
+Jdu se dvěma, hele je teď jich mužu mit tucty hell yeah,
+To celý snad jen proto že se naše hity scelej,
+Ale naše dicky furt smelej,
+Smelej jako vždycky,
+Jako za mlada chutnaj soleně nebo indicky,
+A vy ste furt stejny jste furt nicky,
+A my jsme lhostejní,
+Pojd ukaž mi cecky,
+A nejsi ty ta kurva co mě fakovala pred rokem?
+A teďka pred ksichtem máváš mi rozkrokem,
+A to už jsi dávno zadaná frajera máš za bokem,
+A prostě se furt síráš cockem a za koukem,
+To nejde dělat líp tohle je top země,
+Tohle je nejvic sleep?? chce mě hulit celá země,
+Z pop music bych se měl líp ale na to neptej se mě,
+Ale bejt jako Justin Beb tak to fakt nechce se měRef.
+Still The SameŘeznik.
+Dřiv jsem mival na každym prstu nula holek,
+Po prvé viděl prsa až na vysoký škole,
+Od tý doby co rapuju se proměnili role,
+Po koncertě vole jsou hned kalhotky dole,
+Dřiv mě nikdo kurva na panáky nezval,
+Nikdo mě neznal,
+Tedď jsem jak Vítezslav Nezval,
+Neměl bych co být kdyby se Řeznikem nestal,
+Hmm.. a teď je ze mě alkoholik bezva,
+Dřiv by si mě nikdo nevybral do svýho týmu,
+A teďka kejvu hlavou do kadenci mojich rýmu,
+Svuj kestymu já nezapadal nikam,
+Jsem pořad stejnej zmrd to ti řikam,
+Pořad stejnej lůzr k smichu pro lůzy,
+Jsem pořad to co kdysi to je zdrojem moji můzy,
+My jsme krysy co vylezli z domu hrůzy,
+A teď za náma čůzy nahy skáčou do yakuzy,
+Berou si do pusy můj naleštěnej zalud,
+Začne se jim hnusit chutná jak balud,
+Jsme vadný kusy na odpis jak salud,
+V životě nevyprodáme halu.
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
