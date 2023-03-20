@@ -1,45 +1,70 @@
-Není to jako dřív debil byl ve mě,
-Nešlo to dělat líp nechtělo se mě,
-Ale kdyby jste neměli přirozenej posun,
-Nemohli by jste řict tak už to někam posuň,
-Co tak najednou? Co se děje? Jdu né s jednou,
-Jdu se dvěma, hele je teď jich mužu mit tucty hell yeah,
-To celý snad jen proto že se naše hity scelej,
-Ale naše dicky furt smelej,
-Smelej jako vždycky,
-Jako za mlada chutnaj soleně nebo indicky,
-A vy ste furt stejny jste furt nicky,
-A my jsme lhostejní,
-Pojd ukaž mi cecky,
-A nejsi ty ta kurva co mě fakovala pred rokem?
-A teďka pred ksichtem máváš mi rozkrokem,
-A to už jsi dávno zadaná frajera máš za bokem,
-A prostě se furt síráš cockem a za koukem,
-To nejde dělat líp tohle je top země,
-Tohle je nejvic sleep?? chce mě hulit celá země,
-Z pop music bych se měl líp ale na to neptej se mě,
-Ale bejt jako Justin Beb tak to fakt nechce se měRef.
-Still The SameŘeznik.
-Dřiv jsem mival na každym prstu nula holek,
-Po prvé viděl prsa až na vysoký škole,
-Od tý doby co rapuju se proměnili role,
-Po koncertě vole jsou hned kalhotky dole,
-Dřiv mě nikdo kurva na panáky nezval,
-Nikdo mě neznal,
-Tedď jsem jak Vítezslav Nezval,
-Neměl bych co být kdyby se Řeznikem nestal,
-Hmm.. a teď je ze mě alkoholik bezva,
-Dřiv by si mě nikdo nevybral do svýho týmu,
-A teďka kejvu hlavou do kadenci mojich rýmu,
-Svuj kestymu já nezapadal nikam,
-Jsem pořad stejnej zmrd to ti řikam,
-Pořad stejnej lůzr k smichu pro lůzy,
-Jsem pořad to co kdysi to je zdrojem moji můzy,
-My jsme krysy co vylezli z domu hrůzy,
-A teď za náma čůzy nahy skáčou do yakuzy,
-Berou si do pusy můj naleštěnej zalud,
-Začne se jim hnusit chutná jak balud,
-Jsme vadný kusy na odpis jak salud,
-V životě nevyprodáme halu.
+Jsem sodomagor.
+Jsem sodomagor.
+Jsem sodomagor.
+Jsem sodomagor.
+
+Už vod mala jsem byl trochu divnej,
+Nezapadal mezi ostatní, byl jsem jinej.
+Ujetej, v pěti jsem věděl, co je prcání,
+Péra honění, ale vedlo k pochcání.
+Viděl jsem vdolky všech holek ze školky,
+
+
+Chtěl napodobit sex, co jsem znal z telky.
+VHSka s neměckym péčkem od rodičů,
+Stavěl se mi pták, ale ona měla suchou piču.
+Hold pětiletá není připravená na styk,
+Její malá dětská vagína se nedokáže mastit.
+Byl jsem nasranej, šikanoval ostatní,
+Vztek, bití a kopání, bylo to k nasrání.
+Kreslil jsem obrázky plný smrti a krve,
+Málem zemřel blahem,
+Když viděl Braindead poprvé.
+Miloval jsem násilí v telce a PC,
+Teď jsem Řezník MC a všechno se to mísí.
+Byl jsem Sodomagor už od narození,
+Věřim, že přirození mi stálo při rození.
+Nikdo mě nechápal, až do jistý doby,
+Kdy jsem potkal podobně ujetý magory.
+Sodomagory, s něma se cejtim plně,
+Všichni dohromady si jedem na stejný vlně.
+Svině! Ty furt nechápeš horror,
+Já jsem ten uplně původní Sodomagor.
+Já sem sodomagor.
+Já sem sodomagor.
+Já sem sodomagor.
+Já sem sodomagor.
+
+Sodomagor, co v noci kalí, ve dne spí,
+Je si vědomý, že má zvrácený vědomí.
+Na veřejnosti jede to samý, co v soukromí,
+Když potká pěknou babu, hned si ho nahoní.
+Sodomagor, bere práci hákem,
+Podnapilej veřejnost ohrožuje ptákem.
+Sodomagor nebaví se somrákem,
+Sodomagor necejtí lítost nad čůrákem.
+Sodomagor chčije na sladký poezie,
+Sodomagor žije, denně se opije,
+Koná domácí orgie, děvky ze Zambie,
+Jede si plně na vlně, sodománie.
+Sodomagor sere na společenský pravidla,
+Co se dělat má, nedělá už zpravidla.
+Dává lidem projímadla do jídla,
+Správnej sodomagor má v pokoji mučidla.
+DeSade Sodomagor, žádnej výnos,
+Korunován za negativní kulturní přínos.
+Na můj styl si vem kinedryl, jsem píčus,
+Stvořili jsme ze dvou slov kult, žádnej mýtus.
+Sodoma Gomora, dost bylo póz,
+Pussycat Dolls, nám sajou balls.
+Jestli seš sodomagor, svleč mladou do koz,
+Zmrde, pošli photos!
+
+Já sem sodomagor.
+Já sem sodomagor.
+Já sem sodomagor.
+Já sem sodomagor.
+Sem sodomagor.
+Sodomagor babe.
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
