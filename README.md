@@ -1,70 +1,52 @@
-[Intro]
-Kurevsky nenávidim stav ve kterym se nachází dnešní společnost!
-Čuráci se maj dobře, ale stěžujou si na píčoviny
-Všichni se chovaj jak buzny vole!
-Ale měl bych jeden recept kurva!
-
-[Verš 1]
-Potřebujem další válku, jsme kompletně bez morálky
-Naleju ti krev do šálku, nebudeš se koukat z dálky!
-Potřebujete vidět umírat vaše mámy
-Na krvácející rány přikládat chuchvalce slámy
-V dnešní době lidi nemaj žádný hodnoty
-Řeší se kdo hulí kokoty a Zemanovi bonmoty
-Potřebují zijstit jaká je hodnota života
-Až ti rodinu roztrhá bomba schozená vod pilota!
-Všichni dnešní kluci jsou jako z porcelánu
-Pošlu tě natočit vlog na tvůj kanál do Iránu
-Nebudeš si po ránu nakoupit potraviny
-Protože jsou všude těla který roztrhaly miny
-Nenávidim plejtvání jídlem ty YouTubere
-Když tě vidim se polejvat pudinkem, mě to sere!
-Budeš na to vzpomínat s prostřelenym chodidlem
-Až si budeš v krytu mazat chleba lepidlem!
-You might also like
-Soudní Proces
-Řezník
-Patrick Bateman
-Řezník
-Politicky nekorektní píča
-Řezník
-
-[Refrén]
-Vlevo v bok!
-Pochodem vchod!
-Drž hubu a krok!
-Potřebujem další válku
-Vlevo v bok!
-Pochodem vchod!
-Drž hubu a krok!
-Potřebujem válku, máme na kahánku
-
-[Verš 2]
-Potřebujem další válku, restartovat planetu
-Zdevastovat baráky při kobercovym náletu
-Stejně tyhle čuráky zajímá jenom majetek
-Válka ti sebere všechno, udělá z tebe dobytek
-Nebo pudeš do kytek, do plynový komory
-S tebou v řadě stojí soused vedle z obory
-Mně je úplně jedno, že si měl víc peněz než on
-Teďka oba zemřete, úplně stejně seš v tom
-Potřebujem další válku, abys vyndal hlavu z prdele!
-Nebo aby ti jí tam zašil novodobej Mengele!
-Chci aby jsi zažil, jak tvýho kámoše
-Granát připraví vo půlku hrudního koše!
-Chci aby jsi viděl, že máme uvnitř to samý
-Až bagr tvoje tělo nahrne do velký jámy!
-Budeš se muset v mrzáka bez majetku proměnit
-Aby jsi mohl pořádně to co jsi měl ocenit!
-
-[Refrén]
-Vlevo v bok!
-Pochodem vchod!
-Drž hubu a krok!
-Potřebujem další válku
-Vlevo v bok!
-Pochodem vchod!
-Drž hubu a krok!
-Potřebujem válku, máme na kahánku
+Smál jsem se smažkám a teď vypadám jak oni,
+letos fetuju víc než fetovali voni loni.
+Nasedni si bejby, jsem princ na bílym koni,
+pojedem na můj zámek a tam budem brát drogy.Smál jsem se smažkám a teď vypadám jak oni,
+letos fetuju víc než fetovali voni loni.
+Nasedni si bejby, jsem princ na bílym koni,
+pojedem na můj zámek a tam budem šňupat.Už ani nevim, kdy jsem naposled vylez z bytu,
+home office shit a sáček plnej shitu.
+Vypadá to zase na kurevsky dlouhou šichtu,
+teď nemám hlad, bitch, necpi mi tu šlichtu.
+Mám rozepsaný 4 texty, rozehraný 4 stoly,
+4 okna na chatu, v každym se mě ptaj za kolik.
+Kolem sebe 4 zdi, nerad chodim mezi lidi,
+už jsem vzhůru 4 dny a ještě to tak na 2 vidim.
+Nerozeznám denní dobu, furt stažená roleta,
+nevim už ani jestli je únor nebo sobota.
+Poznám jenom 15. to mi chodí vejplata,
+čas na výlet k bankomatu a pak jít doplnit sklad.
+(wrongway) Dal jsem se po špatný stezce,
+vyjetej jsem zas nechal bůra v cashce.
+Nájem se nekoná, majitel má peška,
+sorry brácho, okradli mě, budeš muset počkat.
+Smál jsem se smažkám a teď vypadám jak oni,
+letos fetuju víc než fetovali voni loni.
+Nasedni si bejby, jsem princ na bílym koni,
+pojedem na můj zámek a tam budem brát drogy.Smál jsem se smažkám a teď vypadám jak oni,
+letos fetuju víc než fetovali voni loni.
+Nasedni si bejby, jsem princ na bílym koni,
+pojedem na můj zámek a tam budem šňupat.Hrozně si v tom libuju, snifuju, sportuju,
+ještě jsem nedoletěl a už znova startuju.
+Fuck you! Na to jít chrápat je moc brzy píčo,
+mám toho ještě ranec, a jsem dizzy píčo!
+80. hodina odbyla, jsem se zas vymrdal uplně na debila,
+zhub' jsem 4 kila to je teda síla, melu hrozný hovna,
+jsem alien jak Míla.
+Sick shit. Moje milá mě posílá na detox,
+v klidu dám si pauzu bejby, už jenom jedna noc.
+Ale tak to nebude a ona to dobře ví,
+motám ji jak Liberec do pavučiny lží.(Motám svou holku v pavučině lží,
+tak kdo dokáže v tomhletom žít.)Roluju kilo, jak zasranej koberec,
+ty si polib prdel, zmrde, neni to tvoje věc.
+Kec, kec, kec, kecy, prdy, beďary,
+kdybyste místo toho radši něco dělali.
+Jako já, seru na vaše hovory,
+a kmitám, abych měl na Starech pořád dolary.
+A moh' obírat Maďary o jejich vejplaty,
+a když to klapne i ten blbej nájem půjdu zaplatit.Smál jsem se smažkám a teď vypadám jak oni,
+letos fetuju víc než fetovali voni loni.
+Nasedni si bejby, jsem princ na bílym koni,
+pojedem na můj zámek a tam budem brát drogy.
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
