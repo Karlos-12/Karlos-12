@@ -1,52 +1,73 @@
-Smál jsem se smažkám a teď vypadám jak oni,
-letos fetuju víc než fetovali voni loni.
-Nasedni si bejby, jsem princ na bílym koni,
-pojedem na můj zámek a tam budem brát drogy.Smál jsem se smažkám a teď vypadám jak oni,
-letos fetuju víc než fetovali voni loni.
-Nasedni si bejby, jsem princ na bílym koni,
-pojedem na můj zámek a tam budem šňupat.Už ani nevim, kdy jsem naposled vylez z bytu,
-home office shit a sáček plnej shitu.
-Vypadá to zase na kurevsky dlouhou šichtu,
-teď nemám hlad, bitch, necpi mi tu šlichtu.
-Mám rozepsaný 4 texty, rozehraný 4 stoly,
-4 okna na chatu, v každym se mě ptaj za kolik.
-Kolem sebe 4 zdi, nerad chodim mezi lidi,
-už jsem vzhůru 4 dny a ještě to tak na 2 vidim.
-Nerozeznám denní dobu, furt stažená roleta,
-nevim už ani jestli je únor nebo sobota.
-Poznám jenom 15. to mi chodí vejplata,
-čas na výlet k bankomatu a pak jít doplnit sklad.
-(wrongway) Dal jsem se po špatný stezce,
-vyjetej jsem zas nechal bůra v cashce.
-Nájem se nekoná, majitel má peška,
-sorry brácho, okradli mě, budeš muset počkat.
-Smál jsem se smažkám a teď vypadám jak oni,
-letos fetuju víc než fetovali voni loni.
-Nasedni si bejby, jsem princ na bílym koni,
-pojedem na můj zámek a tam budem brát drogy.Smál jsem se smažkám a teď vypadám jak oni,
-letos fetuju víc než fetovali voni loni.
-Nasedni si bejby, jsem princ na bílym koni,
-pojedem na můj zámek a tam budem šňupat.Hrozně si v tom libuju, snifuju, sportuju,
-ještě jsem nedoletěl a už znova startuju.
-Fuck you! Na to jít chrápat je moc brzy píčo,
-mám toho ještě ranec, a jsem dizzy píčo!
-80. hodina odbyla, jsem se zas vymrdal uplně na debila,
-zhub' jsem 4 kila to je teda síla, melu hrozný hovna,
-jsem alien jak Míla.
-Sick shit. Moje milá mě posílá na detox,
-v klidu dám si pauzu bejby, už jenom jedna noc.
-Ale tak to nebude a ona to dobře ví,
-motám ji jak Liberec do pavučiny lží.(Motám svou holku v pavučině lží,
-tak kdo dokáže v tomhletom žít.)Roluju kilo, jak zasranej koberec,
-ty si polib prdel, zmrde, neni to tvoje věc.
-Kec, kec, kec, kecy, prdy, beďary,
-kdybyste místo toho radši něco dělali.
-Jako já, seru na vaše hovory,
-a kmitám, abych měl na Starech pořád dolary.
-A moh' obírat Maďary o jejich vejplaty,
-a když to klapne i ten blbej nájem půjdu zaplatit.Smál jsem se smažkám a teď vypadám jak oni,
-letos fetuju víc než fetovali voni loni.
-Nasedni si bejby, jsem princ na bílym koni,
-pojedem na můj zámek a tam budem brát drogy.
+Fresh cut fresh gear v ruce mám fresh beer
+Klasika baroko emko kopačky a pěstí
+Renesanční swag mě nezajímá prosím (Ne, ne)
+Zase chtěli problém a teď utíkají bosí (Bosí)
+Prosím prosím píčo swag nosim (Nosim)
+Gucci beltem kolem more pěstma zmrdy kosim (Kosim)
+My jsme POSSE POSSE žádný zkurvený posí
+Káčko v nose Praha swag chci zlato jak Boosie
+
+Fresh cut fresh gear v ruce mam fresh beer
+Klasika baroko emko kopačky a pěstí
+Rеnesanční swag mě nezajímá prosím (Ne, nе)
+Zase chtěli problém a teď utíkají bosí (Bosí)
+Prosím prosím píčo swag nosim (Nosim)
+Gucci beltem kolem more pěstma zmrdy kosim (Kosim)
+My jsme POSSE POSSE žádný zkurvený posí
+Káčko v nose Praha swag chci zlato jak Boosie
+
+[Verse 1]
+Nad sebou andělé kolem sebe neony
+Na klíně kunda v hlavě cejtim svoje démony (Démony)
+Vodky čáry bomby v pití plavou more lemony (Lemony)
+Trap trap kurvy tupý bílý žlutý ebony
+Kameny se třpytí na dně ledovýho drinku (Drinku)
+Další flaška další bitka mí boys čekaj venku (Venku)
+O zábavu postaráno pohlcený v emku (V emku)
+Splash do píči kurvo kde mám peněženku
+Checkuj more žlutý světla to je noční Praha
+Backstage sakly flašky píčo tvá děvka je nahá (Kurva)
+Šašci píšou sračky more směju se jim haha (Haha)
+Za páskem mam teleskop z kapsy mi visí váha (Brrrra)
+Netrefíš mě vyhejbám se jako Canelo
+Hraju game s míčema more jak na violoncello
+Renesance drip můj novej nick Michelangelo (Ay)
+Kundo sáhni na můj swag a dám ti jednu na čelo
+
+You might also like
+The Hillbillies
+Baby Keem & Kendrick Lamar
+Sprinter
+Dave & Central Cee
+You’re Losing Me (From The Vault)
+Taylor Swift
+
+[Hook]
+Fresh cut fresh gear v ruce mám fresh beer
+Klasika baroko emko kopačky a pěstí
+Renesanční swag mě nezajímá prosím (Ne, ne)
+Zase chtěli problém a teď utíkají bosí (Bosí)
+Prosím prosím píčo swag nosim (Nosim)
+Gucci beltem kolem more pěstma zmrdy kosim (Kosim)
+My jsme POSSE POSSE žádný zkurvený posí
+Káčko v nose Praha swag chci zlato jak Boosie
+
+[Verse 2]
+Mám všechny druhy krásy tak už more dej si (Dej, dej)
+Tam kde jsem byl před deseti ještě píčo nejsi (Ne, ne, ne)
+Frajer jako my, kecy, omyl jseš jen basic (Buzík)
+Jedu street cardio AKA pouliční racin'
+Racin' v noci v kapuci ulicema (Ulicema)
+Pět hvězd křičim neni moje more vina (Grrrrrr)
+Grind grind pro skater ale trochu jinak (Pau, pau)
+Občanku nemam PZS je pičovina (Ayy)
+Dělam věci jinak ne jak všechny místní buzny (Buzny)
+Nesnášim rádoby intelektu-a-lůzry
+Děvko sundej kabát hulíš péro piješ hrozny (Ay)
+Sežral jsi svět a teď ze srandy dostaneš hrozný
+Hroznýš mam v kapse checkuj nový vzory
+Mám to za low vyděláme lovu more hory (Brrr, brrr)
+Když ne tak je poděláme vyšleme magory (Ay)
+Rozdělíme nakoupíme swag konec story ay
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
