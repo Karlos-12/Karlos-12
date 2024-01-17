@@ -1,54 +1,60 @@
-Vím, že se ti můj styl hnusí
-Já jen dělám, co se musí
-Vám to nejde do těch uší
-Páč jste trochu jednodušší
-Nebo jednoduše hluší
-Ti, co nejsou chudí duší
-Tak už todle dávno ví
-Nebo minimálně tuší
-Že Haad to dělá tak, jak se sluší a patří
-A nechci za to nic víc, než vzít si co mi patří
-Koukej mi to dát
-Počítám do tří
-A potom prásk
-
-Haades Pes je jenom jeden (Jeden)
-Zmrde, otrávim tě jedem (Jedem)
-Haades Pes je jeden jenom (Jenom)
-Otrávim tě jako venom (Venom)
-Haades Pes je jenom jeden (Jeden)
-Zmrde, otrávim tě jedem (Jedem)
-Haades Pes je jeden jenom (Jenom)
-Jsem venom, venom, venom, venom
-
-Jedu, jedu si v tom jedu
-1-0, takže vedu
-Ty ses vážně nepovedl
-Bejt tebou jed na to vemu
-Nedělejme z toho vědu
-Na tebe já stejně jebu
-Jenom vjedu do tvý starý
-Sjedu se a zase jedu
-Jedu v tom jedu jak venom
-Ty jsi jenom wannabe John Lennon
-Brzo skončíš jak
-Toho jsi si doufám vědom
-Jsem venom, venom, venom, venom
-You might also like
-GTA
-Řezník
-The Real Slim Shady
-Eminem
-Lose Yourself
-Eminem
-[Chorus]
-Haades Pes je jenom jeden (Jeden)
-Zmrde, otrávim tě jedem (Jedem)
-Haades Pes je jeden jenom (Jenom)
-Jsem venom, venom, venom, venom (Venom)
-Haades Pes je jenom jeden (Jeden)
-Zmrde, otrávim tě jedem (Jedem)
-Haades Pes je jeden jenom (Jenom)
-Jsem venom, venom, venom, venom (Venom)
+Zmrde, já jedu wicked shit
+Sick ZNK fanatik
+Six six six, soboty pořádám sabaty
+Kabala, celibát
+Pomodli se a buď tiše
+Nebude tu chalífát
+Vomrdáme abatyše
+Vyseru se na amiše
+Sick shit, na kaši jsem
+Totálně v rauši
+Na hašiši život zakážu všem
+Vyfistit adventisty
+Z cesty všichni pacifisti
+Kardinál a biskup, tak si nastup
+Pojedeme na piss testy
+Výsledky tristní
+Asi přijdou tresty za incesty
+Prestiž je pryč, jsou to všichni pederasti
+Řezník je mystik
+Má styk jen a pouze s jehovisty
+Snuff porn sadistic
+Jenom prsty vyrvu z kundy cysty
+Popravím věrozvěsty
+Taktický vesty
+Slez, ty píčo, z tý stejdže
+Nerozumíš česky
+Nechci tvý kecy
+Recykluju těla lidí v peci
+Každej imbecil je v kleci
+Půjde na kremaci přeci
+Redrumu dvě deci
+A píčo, půjdem k věci
+Rituální killing, přitom uhryžu ti cecík
+Chutnaj jak telecí
+Ty máš dobrej reflex sací
+Ale tvůj žaludek vrací
+To, co tam poslal můj macík
+Jsem kacíř
+Rouhání, tak to je pro mě prací
+Vědomí se ztrácí
+V rituálu inkarnací
+Moje máma byla oběť
+Můj fotr byl Azazel
+A já vyrůstal v době, kdy byl populární Alcatel
+Alkohol, karate, ožrat se, jít na party
+Démon, co je ve mně, pořád kontroluje narativ
+Může se stát cokoli
+Cyankáli do koly
+Zacinká mi v kebuli
+Vykillím všechny debily
+Piju láhve tequily
+Jsem sick a nefellím
+S žádným zmrdem z vás
+Všechny zmrdy tvrdě sestřelím
+Měj to na zřeteli
+Svoje sloky nesellím
+Svět už je v prdeli
+A já se z toho veselím
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
