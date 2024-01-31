@@ -1,58 +1,85 @@
-Máma mě porodila z prdele
-Ze svojí prdele, víš, ne jakože z prdele
-Blbej je kdo dává, no a blbější kdo nebere
-Kocián to pochopil tak, že se s tim moc nesere
-A jestli jsi to nepochopil ty, no tak jsi dement
-Nevim proč mě posloucháte a co tady chcete
-Ty buzíku, se seber a vypadni dohrát level
-Zejtra ve škole, ty kokote, dostaneš zas do žeber
-More, po poslechu tvojí desky cejtim se jak rastaman
-Tvůj shit asi před dvaceti lety píčo zastaral
-Tvoje show mě sere, dobrá leda v klubu Bataclan
-Ti natočíme klípek dronem, koupili jsme Bayraktar
-Abrakadabra, nasrat na datla
-Faktura zasraná, zacvaká tata
-Zasraná facha, jdem nadávat na plat
-A nadávat na stát, pak zachlastat za vlast
-Já a Strýc Nory vlezem do tvý nory
-Stala se příhoda, ruply ti vývody
-Čubky mají výtoky a zmrdi mají výrony
-Jsou na oko jak z výlohy, jak výzdoby, maj výkony
-U tvý holky mám výhody, za píčoviny výnosy
-Ty výtvory na tvý story jsou kýčovitý výplody
-Její kozy jsou mý hobby, jsou výborný, od přírody
-A víš, co by mi píchlo? Kdyby mi dal Elon svý coiny
-Hrotit ten shit, už nepospíchám
-Jsem lit jako triple bean, co v sobě míchám
-Najednou se vyhejbáš mý kudle, co lítá
-Kolem tebe v místnosti teď musim jít dál
-Smrdí mi roura, jak když jsem Slávek Boura
-Zbouranej jak coura, stejně rozmrdám ti ďouru
-Vyvolám vzpouru a pak nepůjdu k soudu
-Vyfakuju soudruha do ksichtu v Soulu
-Osouložim svini, uhni, sleduj souhru
-Podvážu si kokota s koulema jak houbu
-Zapni mi troubu a pusť mi tam plyn, bro
-Vypne mě to za dlouho, protože hulim indo
-Dávej si bacha, mám pupek jako Saka
-Jsem tupej, nejsem Tupac, ale střílim blocka blocka
-Jsem krutej, nejsem hodnej, vědí hovno, chtěli chlapa
-Jsem tady, táhnu koule po zemi po celý Zemi
-Ženy, co to slyší, to chtěj dělat prsty všemi
-Ženy řvou jak šelmy, já jsem mrtvej jako Kenny
-A brzo budu pena, ani tady žádná změna
-Seberu ti věno, rapidně ti klesne cena
-Koupim si fenu a nechám jí hárat
-Za žádnou cenu si nikdy neoholim kára
-Nechám se zarůst jako stará bába
-Vidim škvíru, vyndám péro a začnu jí párat
-Smrdí mi trubka, buchta čumí jako čubka
-Oloupej mi slupku, děvko, dej si ho do pupku
-Čubka se nechala prcat tvrdě jak od mukla
-A vůbec jí nevadilo, že mám u toho kuklu
-Hrotit ten shit, už nepospíchám
-Jsem lit jako triple bean, co v sobě míchám
-Najednou se vyhejbáš mý kudle, co lítá
-Kolem tebe v místnosti teď musim jít dál
+Zvu tě na dovolenou, destinace: márnice
+Jedem jenom já a ty a betonová tvárnice
+Praskaj ti sanice, mně smíchy praská bránice
+Neznáme hranice, je stanovujem v putyce
+Ve snech mrdám prasnice, v reálu mě žádná nechce
+Ani na seznamce tlustoprdů nejde to vůbec lehce
+Hledám kudy chodim, ale co by?
+Když nenajdu živou, tak půjdu kopat hroby!
+Od doby vlády Sodomy děláme útoky na domy
+Nutíme rodiče poslouchat rap, decibely pohromy
+U toho mrdáme tvojí bábu, nebereme s sebou kondomy
+Všem naskáčou hematomy jak lítaj blesky a hromy
+Když je to neohromí, páčidlo je ochromí
+Rvu do sebe neuroly a vyhánim ty démony
+S Řezníkem jsme si vědomi, že nás zákony nepodlomí
+Od začátku nás jedno pojí: Downovy syndromy!Chcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Pobodat, dokopat, pochovat kriply
+Sodoma Gomora, právě tě vypli!
+reklama
+
+Chcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Pobodat, dokopat, pochovat kriply
+Sodoma Gomora, právě tě vypli!
+fotky
+Sodoma Gomora meets Dope D.O.D.De SadeChceš vidět méně reklam? Registruj seZmrdů buzerace, tohleto je HC fáze
+Zase mi bouchly saze, musim zmrdům granáty sázet
+Démon operace vázne, M.Engele se dostal do nesnáze
+Spojil svojí holce kundu s prdelí rozseknutím hráze!
+Zkáza měkkejch zmrdů, co maj ze mě na mozku otok
+Cákám jejich krve potok na zeď jako Jackson Pollock
+Jsem prorok tvojí smrti, čeká tě bití, až tě chytim,
+čeká tě šití prdele nití a násilný puknutí řiti
+Provalení břišní stěny, hovna, hleny jsou moje meny
+Je tu tvoje seny na rameni, použiju ty hovna místo heny!
+Zmrde, tohle jde mi! Nejtvrdší v týhle zemi
+Jsme brutální jak Brut, ne žádný zkurvený Demi
+Můj hlas pořád rost, mozek je skvost
+Srdce tvrdý jako kost a chladný jako permafrost
+Dostaneš do držky a prochčiješ si svršky
+Dozajista chcípneš, až se s náma dostaneš do roztržky!Chcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Pobodat, dokopat, pochovat kriply
+Sodoma Gomora, právě tě vypli!Chcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Chcípni!Zmrde, budeš bulet, budou ti rozmetány kule
+Pojde nula po nule, jseš bledej jako bledule
+Sežereš hovno z prdele až ti na hlavu sedne bacule
+Až tě spálí žár, popel rozmetáme do pole
+Na poli praseče jsme vládci země sráči
+Vezmem si tě do péče, jsme s tvojí smrtí hráči
+Krev ti z prdele poteče až nasedneš na meče
+Půjdeš leda do piče, potkals mýtů bořičeVylil jsem chemikálie na tvoje genitálie
+Řval jsi jako na divadle, dostal za to cenu Thálie
+Ano, jsme anomálie, Sodoma Gomora je mánie
+Komora magora je u mě doma, mrdám děti, letlampou pálim je!
+Jsme bestie, lijeme oleje na intimní partie, taky hostie
+narveme ti přímo do pyje, nepomůže Panna Marie
+Adieu, zmrdi, na funus už hrajou árie
+Fuck yeah! Tenhle track tě zabijeChcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Pobodat, dokopat, pochovat kriply
+Sodoma Gomora, právě tě vypli!Chcípni!
+Pobodat, dokopat, hluboko zakopat
+pod zem, tak pojď sem a
+Chcípni!
+Pobodat, dokopat, pochovat kriply
+Sodoma Gomora, právě tě vypli!Chcípni!
+Chcípni!
+Chcípni!
+Chcípni!
+Chcípni!
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
