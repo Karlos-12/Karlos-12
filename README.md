@@ -28,7 +28,7 @@ Chcípni!
 Pobodat, dokopat, pochovat kriply
 Sodoma Gomora, právě tě vypli!
 fotky
-Sodoma Gomora meets Dope D.O.D.De SadeChceš vidět méně reklam? Registruj seZmrdů buzerace, tohleto je HC fáze
+Sodoma Gomora meets Dope D.O.D.De Sade Zmrdů buzerace, tohleto je HC fáze
 Zase mi bouchly saze, musim zmrdům granáty sázet
 Démon operace vázne, M.Engele se dostal do nesnáze
 Spojil svojí holce kundu s prdelí rozseknutím hráze!
