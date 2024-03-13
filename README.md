@@ -28,7 +28,7 @@ Byl jsem v pekle, ty zmrde, proto nejsem jemnej
 jako tvý přiteplený vzory, klidně dál je měj
 A řekni svým klukům, ať ti to dělaj jemně
 fotky
-DeSadeChceš vidět méně reklam? Registruj seDesade nebo nic, nejsem příjemnej
+Desade nebo nic, nejsem příjemnej
 Byl jsem v pekle, ty zmrde, proto nejsem jemnej
 jako tvý přiteplený vzory, klidně dál je měj
 A řekni svým boys, ať ti to dělaj jemně
