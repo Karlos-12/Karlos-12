@@ -1,85 +1,67 @@
-Zvu tě na dovolenou, destinace: márnice
-Jedem jenom já a ty a betonová tvárnice
-Praskaj ti sanice, mně smíchy praská bránice
-Neznáme hranice, je stanovujem v putyce
-Ve snech mrdám prasnice, v reálu mě žádná nechce
-Ani na seznamce tlustoprdů nejde to vůbec lehce
-Hledám kudy chodim, ale co by?
-Když nenajdu živou, tak půjdu kopat hroby!
-Od doby vlády Sodomy děláme útoky na domy
-Nutíme rodiče poslouchat rap, decibely pohromy
-U toho mrdáme tvojí bábu, nebereme s sebou kondomy
-Všem naskáčou hematomy jak lítaj blesky a hromy
-Když je to neohromí, páčidlo je ochromí
-Rvu do sebe neuroly a vyhánim ty démony
-S Řezníkem jsme si vědomi, že nás zákony nepodlomí
-Od začátku nás jedno pojí: Downovy syndromy!Chcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Pobodat, dokopat, pochovat kriply
-Sodoma Gomora, právě tě vypli!
+Hell Yeah
+Todle je Asylum
+Fuckin' Schyzo na beatu
+Fuckin' Schyzo on the beat
+Hell Yeah
+Desade or nothing
+Desade nebo nic
+YeDesade obávaný freek z asylumu třicet dva
+se právě hlásí o slovo, mikrofon check jedna dva
+Jestli máte pro mě prášek, hell yeah, dám si dva,
+my se pak už podělíme v jednom těle oba dva
+A to já a tedy Desade,
+jeden tě bude bezhlavě milovat, druhej bez duše prcat
+Bude to hovad, hrdlo ti bude řezat
+jeden z nás, druhej ti na něj dá obvaz
+Už mi není dvacet dva, prasák Desade, páprda,
+neznamená, že až budeš dělat bordel, tě vyhubuju do zmrda
+Bordel chci dělat furt, tak nebuď za mamrda
+Tohleto je fuckin' dope, to je zkurvená mrda
+Desade nebo nic, máš čas do oběda
+se rozhodnout správně, s kym to pudeš rozmrdat
+Ať už přátelák anebo evropská liga,
+rozhodni se kouřit péra nebo bejt gravedigger
 reklama
 
-Chcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Pobodat, dokopat, pochovat kriply
-Sodoma Gomora, právě tě vypli!
+Desade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým klukům, ať ti to dělaj jemně
 fotky
-Sodoma Gomora meets Dope D.O.D.De Sade Zmrdů buzerace, tohleto je HC fáze
-Zase mi bouchly saze, musim zmrdům granáty sázet
-Démon operace vázne, M.Engele se dostal do nesnáze
-Spojil svojí holce kundu s prdelí rozseknutím hráze!
-Zkáza měkkejch zmrdů, co maj ze mě na mozku otok
-Cákám jejich krve potok na zeď jako Jackson Pollock
-Jsem prorok tvojí smrti, čeká tě bití, až tě chytim,
-čeká tě šití prdele nití a násilný puknutí řiti
-Provalení břišní stěny, hovna, hleny jsou moje meny
-Je tu tvoje seny na rameni, použiju ty hovna místo heny!
-Zmrde, tohle jde mi! Nejtvrdší v týhle zemi
-Jsme brutální jak Brut, ne žádný zkurvený Demi
-Můj hlas pořád rost, mozek je skvost
-Srdce tvrdý jako kost a chladný jako permafrost
-Dostaneš do držky a prochčiješ si svršky
-Dozajista chcípneš, až se s náma dostaneš do roztržky!Chcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Pobodat, dokopat, pochovat kriply
-Sodoma Gomora, právě tě vypli!Chcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Chcípni!Zmrde, budeš bulet, budou ti rozmetány kule
-Pojde nula po nule, jseš bledej jako bledule
-Sežereš hovno z prdele až ti na hlavu sedne bacule
-Až tě spálí žár, popel rozmetáme do pole
-Na poli praseče jsme vládci země sráči
-Vezmem si tě do péče, jsme s tvojí smrtí hráči
-Krev ti z prdele poteče až nasedneš na meče
-Půjdeš leda do piče, potkals mýtů bořičeVylil jsem chemikálie na tvoje genitálie
-Řval jsi jako na divadle, dostal za to cenu Thálie
-Ano, jsme anomálie, Sodoma Gomora je mánie
-Komora magora je u mě doma, mrdám děti, letlampou pálim je!
-Jsme bestie, lijeme oleje na intimní partie, taky hostie
-narveme ti přímo do pyje, nepomůže Panna Marie
-Adieu, zmrdi, na funus už hrajou árie
-Fuck yeah! Tenhle track tě zabijeChcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Pobodat, dokopat, pochovat kriply
-Sodoma Gomora, právě tě vypli!Chcípni!
-Pobodat, dokopat, hluboko zakopat
-pod zem, tak pojď sem a
-Chcípni!
-Pobodat, dokopat, pochovat kriply
-Sodoma Gomora, právě tě vypli!Chcípni!
-Chcípni!
-Chcípni!
-Chcípni!
-Chcípni!
+DeSadeChceš vidět méně reklam? Registruj seDesade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým boys, ať ti to dělaj jemně
+(jemně, jemně...)Hraju tu hru jménem život furt dost šíleně,
+už ne tolik rozčileně, muselo dojít ke změně,
+zkrátka opustil jsem svině, co mě sály až do dřeně,
+proto necejtim se vysíleně, ale stojim vzpřímeně
+A haters pukaj vzteky a pukaj cíleně,
+nepopřeně maj mě jako terč na šipky na stěně
+Bavěj se o mý ženě, bavěj se o mý ceně,
+protože kašlu na všechny blbce a dělám to co miluju denně
+Zrychleně se pakuj, moc se nerozpakuj,
+veřejně mě fuckuj, v soukromí můj dick suckuj
+Zrychleně se pakuj, zmizni, odleť jako boeing,
+tvůj život i tvý dny jsou neskutečně boring
+Proto miluju zvířata, nenávidim lidi o to víc,
+že jsou stupidní a podlí, nechci tady žít
+Nechal jsem se zavřít, zapsat ředitelem Bohnic
+Pohni, jsem v jednom ohni, Desade nebo nicDesade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým klukům, ať ti to dělaj jemněDesade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým boys, ať ti to dělaj jemně
+(jemně, jemně, jemně...)Desade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým klukům, ať ti to dělaj jemněDesade nebo nic, nejsem příjemnej
+Byl jsem v pekle, ty zmrde, proto nejsem jemnej
+jako tvý přiteplený vzory, klidně dál je měj
+A řekni svým boys, ať ti to dělaj jemně
+(jemně, jemně, jemně, jemně...)
+
 
 ![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
