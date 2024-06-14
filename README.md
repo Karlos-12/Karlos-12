@@ -9,7 +9,7 @@ někteří už ani neví,
 k čemu by mě vlastně měli přirovnat.
 Když běžím, vypadám jak lavina -
 lavina? povidla? poplivat?
-- kurva, to je kravina!
+kurva, to je kravina!
 reklama
 
 Oh no,
