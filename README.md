@@ -1,75 +1,90 @@
-A při cestách po Latinské Americe
-zavítal prezident Václav Klaus i do Chile,
-kde se mu, mimo jiné, zalíbilo i tamní protokolární pero.
-Na ná na na na
-Na ná na na na
-Vašku, co to děláš?
-Na ná na na na
-Na ná na na na - Čmajz!
-Na ná na na na - Prejs to čmajz!
-Na ná na na na - Václave, prejs to čmajz!
-Na ná na na na - Jóó, čmajz
-Na ná na na na
-Každej ví, je to pašák
-Vašek, ten je best
-Krásné péro bez penálu
-To mu mohlo hlavu splést
-Tenhle kluk, ten má fištrón
-Václav, ten je best
-Když ekonóm jde na brífing
-Hned přemejšlí
-Co by na něm slíz
-Tužku čmajz!
-Na ná na na na - Prejs to čmajz!
-Na ná na na na - Zru-čně čmajz!
-Na ná na na na - Václave, prejs to čmajz!
-Na ná na na na
-Prejs to čmajz
-V centru Chile bez problému
-Taks to čmajz
-V pohodě, vsedě, to má glanc
-Zručně čmajz
-Měl jsi chvilku, taks to líznul
-Prejs to čmajz
-Malou chvíli, vem to čert
-Každej ví, je to pašák
-Vašek, ten je best
-Krásné péro bez penálu
-To mu mohlo hlavu splést
-Tenhle kluk, ten má fištrón
-Václav, ten je best
-Když ekonóm jde na brífing
-Hned přemejšlí
-Co by na něm slíz
-Péro čmajz!
-Na ná na na na - Prejs to čmajz!
-Na ná na na na - Václave, prejs to čmajz!
-Na ná na na na - Prejs to čmajz!
-Na ná na na na
-Čmajz!
-Na ná na na na
-Na ná na na na
-Na ná na na na
-Na ná na na na
-Čmajz!
-Na ná na na na - Prejs to čmajz!
-Na ná na na na - Václave, prejs to čmajz!
-Na ná na na na - Párkrát čmajz!
-Na ná na na na
-V Čechách krade každej póvl!
-Je to taky jedna z cest...
-Skoro denně o tom čteme
-To mu mohlo hlavu splést
-Kauza z toho byla velká
-Václav má u nás rest!
-Když ekonóm jde na brífing
-Hned přemejšlí
-Co by na něm slíz
-Tys to čmajz?
-ne
-ne ne
-to ne
-to není k smíchu...
+Hej hou, hej hou,
+mám pupek jako Santa Klaus,
+když zakopnu, tak se vznáším
+jako kosmonaut.Hello, je tady obsluha?
+To není dietní dort, kurva,
+to je kedlubna!
+No, tak abych začal od znova,
+někteří už ani neví,
+k čemu by mě vlastně měli přirovnat.
+Když běžím, vypadám jak lavina -
+lavina? povidla? poplivat?
+- kurva, to je kravina!
+reklama
 
-
-![27](https://user-images.githubusercontent.com/90242762/212367235-6faaf6ca-908d-4983-aaf4-c137caf8cac9.png)
+Oh no,
+nemám káru jako batman,
+jsem fatman a nerad jezdím busem.
+Za pipkama běhám,
+jak slepice za flusem,
+přináším tlustej rap na zlatým podnose.
+fotky
+FattyChceš vidět méně reklam? Registruj seMonstrum, že?
+Vypadám jak těhotnej -
+nejsem těhotnej,
+jsem jenom dobře nažranej.
+Však to znáte, ne?
+Když tlusťoch zakopne,
+celej svět se hned směje,
+jak zblázněnej! (oh!)Říkaj mi, že jsem řízek poctivej,
+rozteklej jak oliheň,
+většinou pod vlivem.
+Sedím doma 30 hodin denně
+a mám to v piči, ne?
+Kurva Kárle, hejbni tou prdelí
+a vyjeb se ven!Chápeš,
+musím se aklimatizovat,
+schovat se,
+a nebo z toho brzo bude provar.
+Tak odval se,
+nebo poběžíš tu cestu znova,
+Whaddup?
+Né, brácho, fakt nejedu stanovat!Nemám čas.
+Ležím jak meloun na gauči, lenoším,
+zpocenej jsem, jak kurva po noční.
+A když mě
+lidi na bazénu uvidí, tak křičí
+"Zachraňtě Williho, než se utopí!"[R]
+Když řeknu "výpečky,"
+vy na to "se zelím!"
+Výpečky? Se zelím!
+Vypadám jak vypadám,
+a už se asi nezměním -
+Výpečky? se zelím!Když řeknu "výpečky,"
+vy na to "se zelím!"
+Výpečky? Se zelím!
+Vypadám jak vypadám,
+a už se asi nezměním -
+Výpečky? se zelím!Hej stůj, hej stůj,
+nemám čas ti říkat,
+spěchám nakoupit burrita,
+presto comida!
+Víš jak, musíš pochopit význam,
+i když je bída.
+Radši nakoupit tuny jídla
+než mýdla!Jsem přízrak,
+pudinková obluda -
+všichni do mě rýpaj,
+no, co, asi chtějí - ochutnat!
+Bastardi! -
+Nemůžete do mě rejpat,
+tlusťoši si jedou svý
+a mají rádi mejdan.Hej, vy tam,
+pršijou tatranky z nebes,
+ani nevíte, kolik jsem
+dal do jídla peněz!
+Miliony v Lidlu
+a břicho jako ranec,
+oh shit, dovezli mi pizzu,
+zdarec![R]
+Když řeknu "výpečky,"
+vy na to "se zelím!"
+Výpečky? Se zelím!
+Vypadám jak vypadám,
+a už se asi nezměním -
+Výpečky? se zelím!Když řeknu "výpečky,"
+vy na to "se zelím!"
+Všichni - výpečky? Se zelím!
+Vypadám jak vypadám,
+a už se asi nezměním -
+Výpečky? se zelím!
